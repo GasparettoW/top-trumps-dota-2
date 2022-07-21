@@ -1,1 +1,1 @@
-# top-trumps-dota-2
+# Super Trunfo Dota 2
